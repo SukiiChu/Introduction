@@ -7,7 +7,9 @@
 <img width="20" height="20" alt="b3d63e35" src="https://github.com/user-attachments/assets/630afedb-b3d2-4b41-ba32-4345041b435f" />
 
 
-✦ 𝑭𝒓𝒊𝒆𝒏𝒅𝒔: I love yall so much and hugs for y'all❣️ Feel free to int and sit with me anytime♡
+✦ 𝑭𝒓𝒊𝒆𝒏𝒅𝒔: I love yall so much and hugs for y'all❣️ Feel free to int and sit with me anytime♡<img width="20" height="20" alt="07e894cb" src="https://github.com/user-attachments/assets/bfbd18d4-5f9f-41e7-88a8-1cad1180fea5" />
+<img width="20" height="20" alt="033473b3" src="https://github.com/user-attachments/assets/49dabd5a-25f7-4b7d-aa8b-0ca1ed338617" />
+
 
 ✦ 𝑬𝒗𝒆𝒓𝒚𝒐𝒏𝒆: Int freely (I might be busy/afk/semi-afk sometimes, I prefer whispers).  Yall are all amazing people, even if its hard sometimes please try to stay positive it'll be better trust, I believe in yall<img width="20" height="20" alt="7d1d60df" src="https://github.com/user-attachments/assets/e15bd47b-8132-4a7f-8257-7aa9208f2a56" />
 
