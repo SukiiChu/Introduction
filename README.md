@@ -5,6 +5,7 @@
 
 
 <img width="20" height="20" alt="b3d63e35" src="https://github.com/user-attachments/assets/630afedb-b3d2-4b41-ba32-4345041b435f" />
+<img width="2048" height="2048" alt="Untitled_Artwork (25)" src="https://github.com/user-attachments/assets/cdebe8a4-f367-4620-bc85-88b37f032c8f" />
 
 
 ✦ 𝑭𝒓𝒊𝒆𝒏𝒅𝒔: I love yall so much and hugs for y'all❣️ Feel free to int and sit with me anytime♡<img width="20" height="20" alt="07e894cb" src="https://github.com/user-attachments/assets/bfbd18d4-5f9f-41e7-88a8-1cad1180fea5" />
