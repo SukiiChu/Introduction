@@ -22,3 +22,4 @@
 <img width="20" height="20" alt="f6c0a3d6" src="https://github.com/user-attachments/assets/4825b978-7697-4c62-b5cc-cb8995424f2f" />
 
 𝑯𝒂𝒗𝒆 𝒂 𝒏𝒊𝒄𝒆 𝒅𝒂𝒚 𝒐𝒓 𝒏𝒊𝒈𝒉𝒕, 𝒕𝒂𝒌𝒆 𝒄𝒂𝒓𝒆❣️♡ฅ⁠^⁠•⁠ﻌ⁠•⁠^⁠ฅ
+<img width="256" height="256" alt="ca59c7300ea299fc9f429da8e7924e5c" src="https://github.com/user-attachments/assets/1b6b004c-67a7-4d39-8268-088623b4b03a" />
