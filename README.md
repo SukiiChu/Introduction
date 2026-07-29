@@ -4,7 +4,8 @@
 
 
 
-<img width="20" height="20" alt="b3d63e35" src="https://github.com/user-attachments/assets/630afedb-b3d2-4b41-ba32-4345041b435f" />
+<img width="20" height="20" alt="VG0nKO5" src="https://github.com/user-attachments/assets/b9dab826-2987-45cd-8b65-2feb84eed5c6" />
+
 <img width="2048" height="2048" alt="Untitled_Artwork (25)" src="https://github.com/user-attachments/assets/cdebe8a4-f367-4620-bc85-88b37f032c8f" />
 
 
