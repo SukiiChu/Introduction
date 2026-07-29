@@ -20,7 +20,8 @@
 : Please keep in mind you're interacting with real people who all have feelings so make sure you dont hurt them with any of your actions and if youre on any of the safe servers keep in mind there are minors so please follow the safe server rules and dont make any inappropriate actions. Respect each other (Thank you❣️). Keep your personal informations safe. 𝑺𝒕𝒂𝒚 𝒔𝒂𝒇𝒆♡
 
 
-✦ 𝑴𝒂𝒊𝒏 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 Sonic, Tokyo Revengers, Ateez, Sanrio 
+✦ 𝑴𝒂𝒊𝒏 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 Sonic, Tokyo Revengers, Ateez, 𝙼𝙻𝙿, Sanrio <img width="20" height="20" alt="35ea459e" src="https://github.com/user-attachments/assets/5f1a8023-fc7a-48f4-bff1-d1c43938b769" />
+
 
 <img width="20" height="20" alt="f6c0a3d6" src="https://github.com/user-attachments/assets/4825b978-7697-4c62-b5cc-cb8995424f2f" />
 
