@@ -7,17 +7,18 @@
 <img width="20" height="20" alt="b3d63e35" src="https://github.com/user-attachments/assets/630afedb-b3d2-4b41-ba32-4345041b435f" />
 
 
-𝑭𝒓𝒊𝒆𝒏𝒅𝒔: I love yall so much and hugs for y'all❣️ Feel free to int and sit with me anytime♡
+✦ 𝑭𝒓𝒊𝒆𝒏𝒅𝒔: I love yall so much and hugs for y'all❣️ Feel free to int and sit with me anytime♡
 
-𝑬𝒗𝒆𝒓𝒚𝒐𝒏𝒆: Int freely (I might be busy/afk/semi-afk sometimes, I prefer whispers).  Yall are all amazing people, even if its hard sometimes please try to stay positive it'll be better trust, I believe in yall💕<img width="20" height="20" alt="d9b659cc" src="https://github.com/user-attachments/assets/ab271022-87fd-4e3d-b682-be8832d744c7" />
+✦ 𝑬𝒗𝒆𝒓𝒚𝒐𝒏𝒆: Int freely (I might be busy/afk/semi-afk sometimes, I prefer whispers).  Yall are all amazing people, even if its hard sometimes please try to stay positive it'll be better trust, I believe in yall<img width="20" height="20" alt="7d1d60df" src="https://github.com/user-attachments/assets/e15bd47b-8132-4a7f-8257-7aa9208f2a56" />
 
 
 
-<img width="20" height="20" alt="f02ece85" src="https://github.com/user-attachments/assets/6cbba4c1-a264-4442-bf3b-d250de85cdd8" />
+
+✦ <img width="20" height="20" alt="f02ece85" src="https://github.com/user-attachments/assets/6cbba4c1-a264-4442-bf3b-d250de85cdd8" />
 : Please keep in mind you're interacting with real people who all have feelings so make sure you dont hurt them with any of your actions and if youre on any of the safe servers keep in mind there are minors so please follow the safe server rules and dont make any inappropriate actions. Respect each other (Thank you❣️). Keep your personal informations safe. 𝑺𝒕𝒂𝒚 𝒔𝒂𝒇𝒆♡
 
 
-𝑴𝒂𝒊𝒏 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 Sonic, Tokyo Revengers, Ateez, Sanrio 
+✦ 𝑴𝒂𝒊𝒏 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 Sonic, Tokyo Revengers, Ateez, Sanrio 
 
 <img width="20" height="20" alt="f6c0a3d6" src="https://github.com/user-attachments/assets/4825b978-7697-4c62-b5cc-cb8995424f2f" />
 
