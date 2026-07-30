@@ -1,6 +1,6 @@
 
 <img width="20" height="20" alt="3c9f78da" src="https://github.com/user-attachments/assets/58452325-4715-4c17-8661-997ddcefd4fc" />
-𝑯𝒂𝒊𝒊𝒊^^ 𝑰𝒎 𝑺𝒖𝒌𝒊, y'all can find me in the Sonic area mostly on the same spot (or a few pixels away🫡) as Shadow, Amy or Sonic most of the time, chilling with my friends^^. Feel free to int but please dont cover my friends or make them uncomfortable🙏 (Thank you❣️). I dont bite at all and im friendly but sometimes when im anxious I can go semi-mute. I prefer party chat and whispers, using local chat makes me anxious since I have social anxeity. I use English every day but its not my native language so its possible I might write something incorrectly. Im very friendly and patient until you dont give me a good reason to not be (it happens very rarely tho but I can't stand mean people).
+𝑯𝒂𝒊𝒊𝒊^^ 𝑰𝒎 𝑺𝒖𝒌𝒊, y'all can find me mostly on the same spot (or a few pixels away🫡) as Shadow, Amy or Sonic most of the time, chilling with my friends^^. Feel free to int but please dont cover my friends or make them uncomfortable🙏 (Thank you❣️). I dont bite at all and im friendly but sometimes when im anxious I can go semi-mute. I prefer party chat and whispers, using local chat makes me anxious since I have social anxeity. I use English every day but its not my native language so its possible I might write something incorrectly. Im very friendly and patient until you dont give me a good reason to not be (it happens very rarely tho but I can't stand mean people).
 
 
 
