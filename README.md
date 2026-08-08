@@ -18,10 +18,10 @@
 
 
 
+
 ✦ <img width="20" height="20" alt="f02ece85" src="https://github.com/user-attachments/assets/6cbba4c1-a264-4442-bf3b-d250de85cdd8" />
 : Please keep in mind you're interacting with real people who all have feelings so make sure you dont hurt them with any of your actions and if youre on any of the safe servers keep in mind there are minors so please follow the safe server rules and dont make any inappropriate actions. Respect each other (Thank you❣️). Keep your personal informations safe. 𝑺𝒕𝒂𝒚 𝒔𝒂𝒇𝒆♡
-
-
+<img width="2048" height="2048" alt="Picsart_26-08-08_16-09-47-675" src="https://github.com/user-attachments/assets/ebad8108-eee8-4e36-ae68-1cdc6d643b08" />
 ✦ 𝑴𝒂𝒊𝒏 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 Sonic, Tokyo Revengers, Ateez, MLP, Sanrio <img width="20" height="20" alt="35ea459e" src="https://github.com/user-attachments/assets/5f1a8023-fc7a-48f4-bff1-d1c43938b769" />
 
 
